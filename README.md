@@ -69,5 +69,5 @@ Become the operating system for local football leagues.
 ---
 
 ## 📫 Contact
-Telegram: @yourtelegram  
-LinkedIn: https://linkedin.com/in/yourlink
+Telegram: @Furkatjon_akyulov Mbappé
+LinkedIn: https://www.linkedin.com/in/furkatjonakyulov/
